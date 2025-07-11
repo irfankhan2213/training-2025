@@ -1,1 +1,1 @@
-# training-2025
+# Training-TRCS-201-daily-diary
